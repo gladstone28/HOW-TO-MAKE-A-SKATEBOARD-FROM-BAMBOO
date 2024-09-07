@@ -1,32 +1,5 @@
 
-Here Quality Solutions Limited will guide you on the way to nake a Bamboo Skatebaord
-
-See following video:
-
-HOW TO MAKE A SKATEBOARD FROM BAMBOO!!!
-
-<https://www.youtube.com/watch?v=KQtSd3w77wM>
-
-also maybe the following
-
-HOW TO MAKE A SKATEBOARD 🛹 Easy & Informative Guide to make a board at home
-
-<https://www.youtube.com/watch?v=oUoN2pHytxs>
-
-
-also maybe the one below
-
-
-The Absolute Easiest Way to Build a Longboard 
-
-<https://www.youtube.com/watch?v=YF9PGUfWZSo>
-
-or 
-
-The ULTIMATE Guide to Making a Longboard | CashedOutBoards
-
-<https://www.youtube.com/watch?v=EoJpFQgY9Aw>
-
+**Here Quality Solutions Limited will guide you on the way to make a Bamboo Skateboard:**
 
 ##### Making a bamboo skateboard involves several steps, including shaping the deck, layering bamboo with other materials, pressing, cutting, and finishing. Here’s a guide on how to make a bamboo skateboard:
 Materials Needed:
@@ -78,5 +51,33 @@ Steps:
 - Attach the trucks, wheels, and bearings to your bamboo skateboard deck.
 
 Your bamboo skateboard is now ready for use!
+Here Quality Solutions Limited will guide you on the way to nake a Bamboo Skatebaord
+
+See following video:
+
+HOW TO MAKE A SKATEBOARD FROM BAMBOO!!!
+
+<https://www.youtube.com/watch?v=KQtSd3w77wM>
+
+also maybe the following
+
+HOW TO MAKE A SKATEBOARD  M-9 Easy & Informative Guide to make a board at home
+
+<https://www.youtube.com/watch?v=oUoN2pHytxs>
+
+
+also maybe the one below
+
+
+The Absolute Easiest Way to Build a Longboard
+
+<https://www.youtube.com/watch?v=YF9PGUfWZSo>
+
+or
+
+The ULTIMATE Guide to Making a Longboard | CashedOutBoards
+
+<https://www.youtube.com/watch?v=EoJpFQgY9Aw>
 
 This process combines the strength and flexibility of bamboo with a custom design. Bamboo is a great material for skateboards because it is lightweight, durable, and environmentally friendly.
+

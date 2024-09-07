@@ -1,7 +1,5 @@
 
-Here Quality Solutions Limited will guide you on the way to nake a Bamboo Skateboard:
-
-
+**Here Quality Solutions Limited will guide you on the way to make a Bamboo Skateboard:**
 
 ##### Making a bamboo skateboard involves several steps, including shaping the deck, layering bamboo with other materials, pressing, cutting, and finishing. Here’s a guide on how to make a bamboo skateboard:
 Materials Needed:
