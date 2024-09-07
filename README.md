@@ -51,7 +51,8 @@ Steps:
 - Attach the trucks, wheels, and bearings to your bamboo skateboard deck.
 
 Your bamboo skateboard is now ready for use!
-Here Quality Solutions Limited will guide you on the way to nake a Bamboo Skatebaord
+
+**Now Quality Solutions Limited recommene the following videos as a prqctical way to guide you on the way to nake the Bamboo Skatebaord**
 
 See following video:
 
