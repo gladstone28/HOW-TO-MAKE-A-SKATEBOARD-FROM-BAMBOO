@@ -16,24 +16,24 @@ Materials Needed:
 
 Steps:
 
-1. Design the Deck Shape:
+**1. Design the Deck Shape:**
 - Sketch the shape of your skateboard deck on paper or use a pre-made template. You can opt for a longboard, cruiser, or classic skateboard shape.
 - Once the shape is finalized, transfer it to the bamboo sheets.
 
-2. Layer the Bamboo Veneers:
+**2. Layer the Bamboo Veneers:**
 - Bamboo is layered for strength. Typically, skateboards are made of multiple layers (3 to 7), depending on the desired flexibility and strength.
 - Apply a thin layer of epoxy resin or wood glue between each bamboo sheet. For extra strength, you can alternate layers of fiberglass between the bamboo veneers.
 
-3. Press the Deck:
+**3. Press the Deck:**
 - Place the glued bamboo sheets into the skateboard mold. The mold shapes the deck's concave and nose/tail curves.
 - If you have a vacuum press, use it to press the layers together. Alternatively, a skateboard press or clamps can work to ensure tight bonding between the layers.
 - Let the deck cure for 24–48 hours.
 
-4. Trim and Cut the Deck:
+**4. Trim and Cut the Deck:**
 - After the glue has cured, use a jigsaw or bandsaw to cut out the shape of the skateboard.
 - Follow the outline carefully to ensure an even and smooth cut.
 
-5. Sand the Edges and Surface:
+**5. Sand the Edges and Surface:**
 - Use sandpaper to smooth the edges of the skateboard deck. Start with a rough grit (around 80) and progress to finer grits (up to 220) to give the deck a clean, professional finish.
 - Sand the top and bottom surfaces for a smooth texture.
 
