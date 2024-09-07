@@ -52,7 +52,7 @@ Steps:
 
 Your bamboo skateboard is now ready for use!
 
-**Now Quality Solutions Limited recommene the following videos as a prqctical way to guide you on the way to nake the Bamboo Skatebaord**
+**Now Quality Solutions Limited recommends the following videos as a practical way to guide you on the way to nake your own Bamboo Skateboard depending on your wood working experience**
 
 See following video:
 
