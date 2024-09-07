@@ -37,17 +37,17 @@ Steps:
 - Use sandpaper to smooth the edges of the skateboard deck. Start with a rough grit (around 80) and progress to finer grits (up to 220) to give the deck a clean, professional finish.
 - Sand the top and bottom surfaces for a smooth texture.
 
-6. Drill Holes for Trucks:
+**6. Drill Holes for Trucks:**
 - Mark and drill the holes where the skateboard trucks will be mounted. Ensure they are aligned properly for balance and stability.
 
-7. Apply Grip Tape:
+**7. Apply Grip Tape:**
 - Once the deck is smooth, apply grip tape to the top of the skateboard for traction. Trim the excess grip tape with a utility knife.
 
-8. Finish the Deck:
+**8. Finish the Deck:**
 -  If desired, apply a clear coat or polyurethane finish to protect the bamboo and give it a glossy look.
 - Let the finish dry completely before handling.
 
-9. Assemble the Skateboard:
+**9. Assemble the Skateboard:**
 - Attach the trucks, wheels, and bearings to your bamboo skateboard deck.
 
 Your bamboo skateboard is now ready for use!
