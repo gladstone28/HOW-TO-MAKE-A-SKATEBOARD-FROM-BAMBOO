@@ -5,7 +5,7 @@ See following video:
 
 HOW TO MAKE A SKATEBOARD FROM BAMBOO!!!
 
-https://www.youtube.com/watch?v=KQtSd3w77wM
+<https://www.youtube.com/watch?v=KQtSd3w77wM>
 
 also maybe the following
 
