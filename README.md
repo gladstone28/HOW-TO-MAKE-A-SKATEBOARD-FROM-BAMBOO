@@ -82,3 +82,10 @@ The ULTIMATE Guide to Making a Longboard | CashedOutBoards
 
 This process combines the strength and flexibility of bamboo with a custom design. Bamboo is a great material for skateboards because it is lightweight, durable, and environmentally friendly.
 
+or
+
+HOW IT'S MADE: SKATEBOARD 
+
+<https://www.youtube.com/watch?v=qgUUsHSXg2U>
+
+**Contact Gladstone Rose of Quality Solutions Limited ( WhatsApp 876-783-2423) to shedule a zoom meeting to discuss your bamboo project**
