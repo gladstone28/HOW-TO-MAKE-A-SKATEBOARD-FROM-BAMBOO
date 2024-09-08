@@ -56,6 +56,12 @@ Your bamboo skateboard is now ready for use!
 
 See following videos:
 
+HOW IT'S MADE: SKATEBOARD
+
+<https://www.youtube.com/watch?v=qgUUsHSXg2U>
+
+and
+
 HOW TO MAKE A SKATEBOARD FROM BAMBOO!!!
 
 <https://www.youtube.com/watch?v=KQtSd3w77wM>
