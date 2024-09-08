@@ -99,3 +99,6 @@ How to Set Up a Skateboard for Beginner
 https://www.youtube.com/watch?v=09AcXVxYk9E
 
 **Contact Gladstone Rose of Quality Solutions Limited ( WhatsApp 876-783-2423) to shedule a zoom meeting to discuss your bamboo project**
+
+© 2024 Gladstone Rose-QSL Limited. All rights reserved until given direct permission.
+
